@@ -22,8 +22,4 @@ Para mais informações, entre em contato:
 - Email: roseane.1212@hotmail.com
 - LinkedIn: [Roseane](https://www.linkedin.com/in/roseane-silva-0b150114b/)
 
----
 
-
-
-https://github.com/Roseanedasilva1212/Gta/assets/167696930/3fcd0aad-70b9-44a4-8913-89b8396bf878
