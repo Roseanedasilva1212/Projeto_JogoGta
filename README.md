@@ -22,4 +22,7 @@ Para mais informações, entre em contato:
 - Email: roseane.1212@hotmail.com
 - LinkedIn: [Roseane](https://www.linkedin.com/in/roseane-silva-0b150114b/)
 
+- ![Captura de tela 2025-03-30 070353](https://github.com/user-attachments/assets/68331754-09e2-4c1c-a60a-769970c78b46)
+
+
 
